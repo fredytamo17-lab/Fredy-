@@ -1,2 +1,0 @@
-# Fredy-
-Description activité scolaire 
